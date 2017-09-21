@@ -2,6 +2,6 @@
 
 Il y avait un violon sur le toit.
 
-Il pleuvait comme "Vache qui pisse".
+Il pleuvait comme Vache qui pisse.
 
-Le ciel "pissait dans un violon".
+Le ciel pissait dans un violon.
